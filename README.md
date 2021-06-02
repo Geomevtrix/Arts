@@ -1,2 +1,3 @@
 # Arts
-Geometric illustration on ideas on a higher dimension
+Geometric illustration of ideas on a higher dimensional perspective
+Psychedelically Inclined
